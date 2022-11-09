@@ -1,2 +1,2 @@
 ## Shop4Banh.vn
-Contact: luongqc@live.com
+Domain for sale - Contact email: luongqc@live.com
